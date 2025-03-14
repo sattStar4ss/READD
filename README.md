@@ -1,5 +1,6 @@
 # READD
 <img src="https://64.media.tumblr.com/6a5f31a00ea2dc1275e015cd49ee4736/612281d0746782a2-98/s1280x1920/be476af1fef6cd1aadf17a9110ec5f29f1bc14cd.pnj"/>![image](https://github.com/user-attachments/assets/95f202f2-350b-4dc6-9486-287c87a247b6)
+https://siillypinkstarss.straw.page
 
 HEY!:D  
 Im mainly ar0und the bsd area, caffee, and where y0u spawn at IS A MIN0R >w< Feel free t0 int especially if i am al0ne, if n0t ask first 0r see how the 
